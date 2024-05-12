@@ -1,0 +1,2 @@
+Naxus, Joxh te está esperando en la base central para que subas el código, es hora de cambiar el mundo. #speaker: LAUX #portrait: LauraImage
+No pensé que esto fuese tan difícil, ya nada me sorprende. #speaker: NAXUS #portrait: NaxusImage
